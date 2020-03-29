@@ -1,5 +1,4 @@
-EDIT
-PRIVACY POLICY
+
 Privacy Policy
 Anthony morris built the Quarantine chaos app as a Free app. This SERVICE is provided by Anthony morris at no cost and is intended for use as is.
 
